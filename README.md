@@ -1,0 +1,1 @@
+# Learning-Generative-AI-start-31-Oct-2025
